@@ -1,2 +1,2 @@
 # labs
-https://drive.google.com/file/d/1U3tpZL5MPmh6LhAD-V99j724iSVqmh2_/view?usp=share_link
+https://drive.google.com/drive/folders/1S52y1wtEzZ7rrIItE4OrJmxU6XOv1P3u?usp=sharing
